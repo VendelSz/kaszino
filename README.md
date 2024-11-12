@@ -1,1 +1,3 @@
 # kaszino
+
+majd otthon befejezem
